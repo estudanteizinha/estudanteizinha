@@ -1,4 +1,4 @@
-Bem vindo ao meu perfil
+Bem vindo ao meu perfil 
 
 Meu nome é Izabela Nascimento
 
@@ -9,4 +9,4 @@ Meu nome é Izabela Nascimento
 Você pode entrar em contato comigo 📫
 00001129743482sp@al.educacao.sp.gov.br
 
-@aestudanteizinha
+@estudanteizinha
